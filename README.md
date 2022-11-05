@@ -1,3 +1,3 @@
 - HELLO!
-- I AM THE SOLOIST!🎻
+- I AM THE SOLOIST! 🎼🎻
 - IT IS MY FIRST SHOT
